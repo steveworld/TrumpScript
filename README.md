@@ -89,4 +89,4 @@ But most importantly, Trump doesn't like to talk about his failures. So a lot of
 ## Because We Pretend We're Good People
 If this page entertained you, consider making a donation to your favorite charity or political campaign.
 
-I'm a fan of the [Läkemedel mot virus](http://www.herpesvirus.se/)
+I'm a fan of the [vanliga könssjukdomar i sverige](http://www.herpesvirus.se/)
